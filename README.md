@@ -1,0 +1,2 @@
+ignore edilecek
+rvmesrvşdvlnkdrnv
